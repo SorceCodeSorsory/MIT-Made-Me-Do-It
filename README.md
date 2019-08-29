@@ -1,3 +1,3 @@
-# MIT-Made-Me-Do-It2
+# MIT-Made-Me-Do-It-2
 Website 4 Class
-Just playing around for a class... probably should tidy up the text for better habits, but ehh.
+Just playing around after class... probably should make something for myself; making better habits, but ehh, you know how that goes.
